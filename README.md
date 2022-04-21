@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @h8rsha-git
-- 👀 I’m interested in coding, movies and girls.
+- 👀 I’m interested in coding, movies and exploring life.
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate with people with enthusiasm & positive mindset.
 - 📫 How to reach me h8rsha@gmail.com
